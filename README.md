@@ -1,2 +1,2 @@
-# erowid
+# erowid sux
 :)
